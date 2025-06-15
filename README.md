@@ -1,4 +1,5 @@
-![2fc58c12295ba612f6376ab55e948b95](https://github.com/user-attachments/assets/2cb45269-c3a1-4295-b6f2-e45260c1074c)
+
+![SonicAdventure2_Amy_hugs_Shadow](https://github.com/user-attachments/assets/02f93c0a-6775-4b58-9e8d-8aecd8592351)
 
 
 𝗧𝗛𝗘𝗠!
